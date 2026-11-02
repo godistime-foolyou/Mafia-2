@@ -244,4 +244,4 @@ Mafia 2 is available as a full free version for Windows, offering you access to 
 Ready to dive into the world of organized crime? **Download Mafia 2 for free today and join the adventure!**
 
 ---
-**Last updated:** 2026-11-02 00:21:37 UTC
+**Last updated:** 2026-11-02 07:22:09 UTC
